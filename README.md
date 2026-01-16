@@ -14,3 +14,6 @@ Talha's Shopping list
 - Beef
 
 > To be or not to be
+
+[just open](https://eshop-prices.com/?currency=EUR)
+![Hog rideeeeerrr](https://www.clashchamps.com/wp-content/uploads/2023/03/Hog-Rider-2-405x500.png)
